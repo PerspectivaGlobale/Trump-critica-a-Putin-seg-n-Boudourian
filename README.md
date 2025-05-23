@@ -1,0 +1,1 @@
+# Trump-critica-a-Putin-seg-n-Boudourian
